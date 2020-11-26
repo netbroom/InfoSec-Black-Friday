@@ -33,7 +33,7 @@ https://order.shareit.com/cart/view
 
 Pulsedive Threat Intelligence :see_no_evil:\
 https://pulsedive.com/about/pro  
-$5 PRO accounts with code: TRYFOR5
+$5 Pro accounts for the first month with code: TRYFOR5
 
 Tenable\
 https://www.tenable.com/buy  
